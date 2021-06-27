@@ -1,2 +1,3 @@
 # AppleDaily_20210624
-Scanned Copy of Apple Daily Final Edition (24 June 2021)
+The is the scanned copy of Apple Daily final edition (24 June 2021).<br>
+The copyright is owned by Next Digital Ltd.
